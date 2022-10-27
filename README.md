@@ -15,3 +15,7 @@ O valor dela é de R$ 80.000,00 por R$ 77.890,00 a vista. Vendemos em Curitiba-P
 ![image](https://user-images.githubusercontent.com/113630192/198361038-26c6f5bd-8851-4541-bff6-205c53f76f14.png)
 
 @_rebaixados
+
+![Image](https://user-images.githubusercontent.com/113630192/198361783-dd08dcd7-e1f7-4cbd-a510-66a9c6b57a8d.png)
+
+Só-rebaixados
